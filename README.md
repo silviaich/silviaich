@@ -31,6 +31,5 @@ Increased Savings
 **Vice President of Public Relations @ Bengalis und Bharatiyas in Hessen Rhine-Main Area e.V. (_January 2023 - Present_)**
 
 ## Hobbies
-Singing 
-Peformed on-stage in several events organized by the Consulate of India, Frankfurt and other Indian communities based in Frankfurt (e.g. Vishwa Hindu Parishad, BHRM e.V.).
-Sketching, Reading Novels, Travelling
+- Singing: Peformed on-stage in several events organized by the Consulate of India, Frankfurt and other Indian communities based in Frankfurt (e.g. Vishwa Hindu Parishad, BHRM e.V.).
+- Sketching, Reading Novels, Travelling
